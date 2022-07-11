@@ -1,8 +1,8 @@
 Tired of sitting in front of your pc all day waiting for a big trade?
 
-Do you wish you could just relax in your bed and get a discord 
+Do you wish you could just relax on your couch and receive
 
-notification whenever someone wants to buy your item? 
+a discord message whenever someone wants to buy your item? 
 
 
 
